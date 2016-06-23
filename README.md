@@ -1,0 +1,1 @@
+# GoldenRule_3.0
